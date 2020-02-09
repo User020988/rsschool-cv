@@ -1,6 +1,6 @@
 ## Kirsan Karmashov
 
-1. telegram : https://t.me/KKarmashov
+1. telegram: https://t.me/KKarmashov
 
 2. My goal is to become Junior Developer at first. Then I will improove my skills by myself, because nobody gonna teach you at work.  I want to create web based apps.  
 I always need to learn something, so i have some abilities to learn fast and work hard. At first I will Junior, so I'm ready.  
